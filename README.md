@@ -1,1 +1,1 @@
-# capital-institute
+# Capital Institute
